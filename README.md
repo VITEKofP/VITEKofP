@@ -24,3 +24,4 @@
 ](https://t.me/VITEKofP)
 [![image](https://user-images.githubusercontent.com/110093043/215430600-156bdb59-44ac-4097-bee0-6a85e1a1f764.png)
 ](https://vk.com/viktor.ryzhikh)
+**Электронная почта:** vitekofp@gmail.com
